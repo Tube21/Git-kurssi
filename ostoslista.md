@@ -1,0 +1,4 @@
+kaljaa 
+perunaa
+maitoo
+jauhelihaa
